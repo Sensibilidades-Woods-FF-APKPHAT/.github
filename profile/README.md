@@ -3,6 +3,7 @@
 **Sensibilidades Woods FF** es una aplicación emocionante desarrollada para el juego **Free Fire**. Esta aplicación ofrece una serie de características que mejoran la experiencia del jugador, especialmente para aquellos que disfrutan de las tácticas y la exploración. A continuación, se detallan las características clave de **Sensibilidades Woods FF**.
 # [**Descargar Sensibilidades Woods FF**](https://apkphat.io/es/sensibilidades-woods-ff/)
 
+![Logo Sensibilidades Woods FF](https://github.com/Sensibilidades-Woods-FF-APKPHAT/.github/blob/main/Sensibilidades-Woods-FF-apk-for-android.jpg)
 
 ## Introducción
 
